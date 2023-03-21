@@ -1,0 +1,2 @@
+# fajar-
+Makalah tentang HAM 
